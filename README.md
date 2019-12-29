@@ -1,2 +1,5 @@
-# beelddenken_artikel
-Academisch artikel over beelddenken
+# Een beelddenker zijn zegt niks
+
+
+
+
